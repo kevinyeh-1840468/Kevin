@@ -1,2 +1,2 @@
-# kevinyeh-1840468.github.io/index.html 
+# kevinyeh-1840468
 Info 101 stuff
